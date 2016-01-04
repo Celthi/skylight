@@ -4,5 +4,8 @@ You can visit the [amazon](http://www.amazon.com/exec/obidos/tg/detail/-/0521592
 
 ## Welcome cooperation.
 
+## Statement
+This work is for personal English learning. I translate a few pieces of the book, not the most of it, let alone the entire book.
+
 ## NOTE:
-This book is not suitable for beginner. And only the experts can read it from beginning to the end. I just read some sections of it. The reviews on Amazon say clear about the book. You can read the beginning sections untill you can understand the material. Or you can read the sections I translated.
+This book is not suitable for beginner. And only the experts can read it from beginning to the end. I just read some sections of it. The reviews on Amazon say clear about the book. You can read the beginning sections untill you can't understand the material. Or you can read the sections I translated.
